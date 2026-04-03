@@ -1,2 +1,3 @@
 # Across-the-globe-repository
-SEO marketing
+SEO marketing strategy
+
