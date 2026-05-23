@@ -1,3 +1,3 @@
-# Across-the-globe-repository
+# Acrosshq-repository
 SEO marketing strategy
 
